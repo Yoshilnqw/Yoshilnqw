@@ -1,7 +1,5 @@
 ##
 ︶⊹︶︶୨INFO୧︶︶⊹︶
-- 𓂃۶ৎ Hello! I am Yoshi.
-- 𓂃۶ৎ Mostly at Forsaken area, sometimes spawn, rarely in other areas
 - 𓂃۶ৎ They/Them
 - 𓂃۶ৎ I am a minor.
 - ⋆˚࿔ Don't take me seriously, i am joking most of the time
