@@ -22,7 +22,7 @@
 
 ︶⊹︶︶୨Fandoms୧︶︶⊹︶
 - ⋆˙⟡ IDV FANS PLEASE FIND ME IM BEGGING
-- ⋆˙⟡ Forsaken, i am in the forsaken area all the time ^^
+- ⋆˙⟡ Forsaken, i am in the roblox area all the time ^^
 - ⋆˙⟡ PRSK/PJSK
 - ⋆˙⟡ CRK
 
