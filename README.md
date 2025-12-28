@@ -6,7 +6,7 @@
 ──────────────────────────────────────────────────────────────────
 
 ︶⊹︶︶୨DNI୧︶︶⊹︶
-- ᶻ 𝗓 𐰁 .ᐟ OVERLY sensitive people, Yumeshippers, Overused Ragebait and "Trans Age" DONT GET CLOSE TO ME YALL PMO SO BAD
+- ᶻ 𝗓 𐰁 .ᐟ OVERLY sensitive people, Yumeshippers, Overused Ragebait and "Trans Age" yall pmo
 - The rest is Basic DNI criteria: Proshippers, Irl Gore Enjoyers, Zqqph1les, 1nc3st Supporters, Queer Obsessed, Ai artists & their supporters, Loli/Shotacon
 
 ──────────────────────────────────────────────────────────────────
@@ -21,7 +21,7 @@
 
 ︶⊹︶︶୨Fandoms୧︶︶⊹︶
 - ⋆˙⟡ IDV FANS PLEASE FIND ME IM BEGGING
-- ⋆˙⟡ Forsaken, i am in the roblox area all the time ^^
+- ⋆˙⟡ Forsaken
 - ⋆˙⟡ PRSK/PJSK
 - ⋆˙⟡ CRK
 
