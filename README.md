@@ -8,7 +8,7 @@
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤNoㅤInspoㅤ/ㅤcopyㅤ,ㅤperm block
+ㅤㅤㅤㅤㅤㅤNoㅤInspoㅤ/ㅤcopyㅤ,ㅤperm block
 
 <!--
 **Yoshilnqw/Yoshilnqw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
