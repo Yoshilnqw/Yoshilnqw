@@ -3,7 +3,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3800&pause=500&color=80463D&width=435&lines=A+puppet+without+strings%2C;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4My+proudest)](https://git.io/typing-svg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3800&pause=500&color=80463D&width=435&lines=A+puppet+without+strings%2C;%E3%85%A4%E3%85%A4%E3%85%A4My+proudest)](https://git.io/typing-svg)
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤNo Inspo / copy
