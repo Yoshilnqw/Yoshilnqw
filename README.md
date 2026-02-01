@@ -3,10 +3,10 @@
 
 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=900&color=976654&width=435&lines=A+puppet+without+strings.;My+proudest)](https://git.io/typing-svg)
-
-
-STOP TAKING INSPO FROM MY SKINSAHDAHUWADUAWGHGHDGAW PMO
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=4000&pause=900&color=976654&width=435&lines=A+puppet+without+strings.;My+proudest)](https://git.io/typing-svg)
+ㅤㅤㅤㅤ
+ㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤSTOP TAKING INSPO FROM MY SKINSAHDAHUWADUAWGHGHDGAW PMO
 
 
 <!--
